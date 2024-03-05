@@ -1,1 +1,1 @@
-Stupid human, why are you reading me?
+Stupid human, why are you reading me? Go home now!
